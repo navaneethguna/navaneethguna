@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @navaneethguna
-- 👀 I’m interested in Student Intern on any project or in a software company
+- 👀 I’m interested in Student Intern on any project in a software company
 - 🌱 I’m currently learning B.tech Computer Science Engineering
 - 📫 How to reach me navaneeth.247g@gmail.com
 
